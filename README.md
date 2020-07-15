@@ -1,0 +1,2 @@
+# frige
+it's coooooooool！
